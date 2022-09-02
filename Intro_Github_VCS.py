@@ -27,7 +27,6 @@ I love to eat apple pie
 i love to eat ice cream
 my favourite game to play is minecraft
 I would love to go to italy
-I like play csgo
 ------------------Student 03------------------
 
 
